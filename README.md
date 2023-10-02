@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @simgesengul
+- 👀 I’m interested in Computational Biology
